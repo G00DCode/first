@@ -1,3 +1,3 @@
 # first
 <br>
-Author-Smita Chauhan
+Author-Smita Sanjay Chauhan
